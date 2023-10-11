@@ -1,4 +1,4 @@
-### Akun Github
+### Info Akun Github
 Lelang Akun Github:
 + Bisa Costum Domain
 + Tahun bikin 13/02/2018
@@ -9,4 +9,4 @@ Bayar dulu > change email > Done.
 
 ### Hubungi QiubyZhukhi
 - [QiubyZhukhi](https://www.facebook.com/QiubyZhuk?mibextid=2JQ9oc)
-- [Telegram](http://t.me/@QiubyZhukhi)
+- [Telegram](http://t.me/QiubyZhukhi)
