@@ -1,16 +1,12 @@
-### Hi there 👋
+### Akun Github
+Lelang Akun Github:
++ Bisa Costum Domain
++ Tahun bikin 13/02/2018
+- Tidak dengan Emailnya, soalnya emailnya milik pribadi.
 
-<!--
-**QiubyZhukhi/QiubyZhukhi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+System:
+Bayar dulu > change email > Done.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Hubungi QiubyZhukhi
+- [QiubyZhukhi](https://www.facebook.com/QiubyZhuk?mibextid=2JQ9oc)
+- [Telegram](http://t.me/@QiubyZhukhi)
