@@ -9,4 +9,4 @@ Bayar dulu > change email > Done.
 
 ### Hubungi QiubyZhukhi
 - [QiubyZhukhi](https://www.facebook.com/QiubyZhuk?mibextid=2JQ9oc)
-- [Telegram](http://t.me/QiubyZhukhi)
+- [Telegram](t.me/QiubyZhukhi)
